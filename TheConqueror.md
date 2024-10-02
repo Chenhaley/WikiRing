@@ -9,3 +9,5 @@ Red Lion of Caelid, Conqueror of the Stars, the mightiest of the demigods, is no
 ![](https://assetsio.gnwcdn.com/elden-ring-sote-radahn-1.png?width=1200&height=1200&fit=bounds&quality=70&format=jpg&auto=webp)
 
 So the thing is, he's in his prime and you just know you are guranteed death on your first death because this Radahn is reincarnated from Lord Mohgs body which the tarnished also bests in battle. He is the final obstacle in your path to Elden Lord, very fitting as he is the mightiest. Everything about this character feels great from his theme to his combat mechanics as he is just relentless in his aggressions to give you a mean thrashing. 
+
+[General Radahn](https://eldenring.wiki.fextralife.com/Starscourge+Radahn)
