@@ -1,4 +1,4 @@
 # WikidRing
 # Righteous tarnished, what brings thou here?
 
-# Dost thou aspire to become the Elden Lord?
+ Dost thou aspire to become the _Elden Lord_?
